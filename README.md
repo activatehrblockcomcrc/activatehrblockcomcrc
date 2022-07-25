@@ -2,7 +2,7 @@
 
 [![Activate.hrblock.com/crc](get-started.png)](https://ht.amdonline.site/)
 
-[Activate.hrblock.com/crc](https://github.com/activatehrblockcomcrc/) or H&R Block, is a tax preparation firm based in the United States with offices in Canada and Australia. Henry W. Bloch and Richard Bloch started the firm in 1955. From their activate.hrblock.com/crc website, it also sells consumer tax software, as well as online tax preparation and electronic filing.
+[Activate.hrblock.com/crc](https://github.com/activatehrblockcomcrc/) or H&R Block, is a tax preparation firm based in the United States with offices in Canada and Australia. Henry W. Bloch and Richard Bloch started the firm in 1955. From their [activate.hrblock.com/crc](https://github.com/hrblockcrc/activate.hrblock.com.crc.github.com/) website, it also sells consumer tax software, as well as online tax preparation and electronic filing.
 
 ## Where to get H&R block activation code?
 
